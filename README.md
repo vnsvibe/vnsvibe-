@@ -1,2 +1,0 @@
-# vnsvibe-
-Banarasi silk saree 
